@@ -2,7 +2,7 @@
 - 👀 I’m interested in Machine Learning and data science
 - 🌱 I’m currently learning ML, DL
 - 💞️ I’m looking for placement
-- 📫 yo9u can reach me via mail- pawarabhi22051999@gmail.com
+- 📫 you can reach me via mail- pawarabhi22051999@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am very good and fast learner
 
