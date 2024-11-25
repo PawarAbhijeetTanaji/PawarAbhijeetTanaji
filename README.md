@@ -4,7 +4,7 @@
 - 💞️ I’m looking for placement
 - 📫 you can reach me via mail- pawarabhi22051999@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am very good and fast learner
+- ⚡ I am very good and fast learner
 
 <!---
 PawarAbhijeetTanaji/PawarAbhijeetTanaji is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
